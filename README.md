@@ -1,2 +1,2 @@
-Website Link 👉 https://mdsifatgitid.github.io/
-All website Link 👉 https://bio.link/mdsifatbiolink
+Website Link 👉 https://t.me/dalimnama
+All website Link 👉 https://t.me/dalimnama
